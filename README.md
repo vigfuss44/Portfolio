@@ -1,2 +1,0 @@
-# Study-projects
-op-op
